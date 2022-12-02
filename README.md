@@ -1,7 +1,7 @@
-ᓚᘏᗢ┊
+**ᓚᘏᗢ**┊
 hiii!!!!!! ┊ 
-currently learning html/css┊ 
-contact: https://dotsunny.carrd.co ┊ 
-(=^･ω･^=)
+currently learning **html/css**┊ 
+contact: **https://dotsunny.carrd.co** ┊ 
+**(=^･ω･^=)**
 
 
