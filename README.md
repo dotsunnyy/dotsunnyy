@@ -1,4 +1,4 @@
-**ᓚᘏᗢ**┊hiii!!!!!! ┊ html/css beginner┊ contact: **https://dotsunny.carrd.co** (may be outdated)┊ **ᗢᘏᓗ**<br><br>[![Discord Presence](https://lanyard.cnrad.dev/api/851127356595634196)](https://discord.com/users/851127356595634196)
+**ᓚᘏᗢ**┊hiii!!!!!! ┊ html/css beginner┊ contact: **[https://dotsunny.net/links.html]([https://dotsunnynet-dotsunnyy.vercel.app/links.html](https://dotsunny.net/links.html))** (may be outdated)┊ **ᗢᘏᓗ**<br><br>[![Discord Presence](https://lanyard.cnrad.dev/api/851127356595634196)](https://discord.com/users/851127356595634196)
 
 
 #  GitHub Stats:
